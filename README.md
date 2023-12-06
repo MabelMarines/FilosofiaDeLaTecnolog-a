@@ -1,1 +1,1 @@
-# FilosofiaDeLaTecnolog-a
+# FilosofiaDeLaTecnologia
